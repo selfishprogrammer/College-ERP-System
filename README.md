@@ -17,6 +17,7 @@ Students can Joiun Classes , Submit Homeworks , Gives Online Exam etc
 
 Adminstration Can Handel All The details.
 
+USE THIS FOR YOUR PROJECTS BUT REMEBER TO FOLLOW ME ON INSTAGRAM 😂 : @iamblokee
 
 
 # Contribute In this
